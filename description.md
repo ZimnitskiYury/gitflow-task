@@ -59,3 +59,11 @@ This bundle comes with the black Surface Pro Type Cover that features a keyboard
 ![Image of Surface Pro 7 Front](https://static.bhphoto.com/images/multiple_images/images500x500/1573476344_IMG_1274118.jpg)
 ![Image of Surface Pro 7 Behind](https://static.bhphoto.com/images/multiple_images/images500x500/1573476344_IMG_1274119.jpg)
 ![Image of Surface Pro 7](https://static.bhphoto.com/images/multiple_images/images500x500/1573476344_IMG_1274117.jpg)
+
+### _Similar Devices:_
+
+[Microsoft 10.5" Multi-Touch Surface Go 2 (Wi-Fi Only)](https://www.bhphotovideo.com/c/product/1558276-REG/microsoft_stq_00001_surface_pro.html)
+[Samsung 10.4" Galaxy Tab S6 Lite (Wi-Fi Only, Chiffon Rose)](https://www.bhphotovideo.com/c/product/1543678-REG/samsung_sm_p610nziexar_10_1_galaxy_tab_s6.html)
+[Apple 7.9" iPad mini (Early 2019, 64GB, Wi-Fi Only, Space Gray)](https://www.bhphotovideo.com/c/product/1468028-REG/apple_muqw2ll_a_7_9_ipad_mini_early.html)
+[Lenovo 8" Tab M8 HD 32GB Tablet (2nd Gen)](https://www.bhphotovideo.com/c/product/1556929-REG/lenovo_za5g0060us_m8_tb_8505f_za5g0060u_tablet.html)
+[Apple 12.9" iPad Pro (Early 2020, 256GB, Wi-Fi Only, Space Gray)](https://www.bhphotovideo.com/c/product/1553828-REG/apple_mxat2ll_a_12_9_ipad_pro_early.html)
