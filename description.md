@@ -52,3 +52,10 @@ This bundle comes with the black Surface Pro Type Cover that features a keyboard
 
 **Package Weight:** 5 lb
 **Box Dimensions (LxWxH):** 13 x 11 x 10"
+
+### _Photo:_
+
+![Image of Surface Pro 7](https://static.bhphoto.com/images/images500x500/microsoft_qwv_00007_12_3_multi_touch_surface_pro_1573476274_1506679.jpg)
+![Image of Surface Pro 7 Front](https://static.bhphoto.com/images/multiple_images/images500x500/1573476344_IMG_1274118.jpg)
+![Image of Surface Pro 7 Behind](https://static.bhphoto.com/images/multiple_images/images500x500/1573476344_IMG_1274119.jpg)
+![Image of Surface Pro 7](https://static.bhphoto.com/images/multiple_images/images500x500/1573476344_IMG_1274117.jpg)
